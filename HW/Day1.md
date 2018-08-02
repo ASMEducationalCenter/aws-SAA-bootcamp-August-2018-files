@@ -1,0 +1,3 @@
+## HW day 1
+- Watch the video  link ....
+- Read Chapter 1 
